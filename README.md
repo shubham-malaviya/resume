@@ -1,1 +1,1 @@
-Resume last updated on 9th October 2023.
+Resume last updated on 2nd January 2024.
